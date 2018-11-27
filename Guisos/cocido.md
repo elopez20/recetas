@@ -1,6 +1,6 @@
 Ingredientes
 
-Ingredientes para 4 personas: 250 g de garbanzos, 300 g de morcillo de vaca, ¼ de gallina, 100 g de tocino blanco o entreverado, 100 g de morcilla de cebolla, 100 g de chorizo, 50 g de punta de jamón serrano, 4 huesos de tuétano de unos 5 cm, 1 Kg. de repollo, 4 patatas medianas, 2 zanahorias, 1 cebolla, 1 nabo, 1 diente de ajo, aceite de oliva para rehogar, 100 g de fideos cabellín para la sopa y sal. Para el relleno: 2 huevos, 75 g de pan rallado, 2 dientes de ajo, 2 cucharadas de perejil picado, aceite de oliva y sal.
+Ingredientes para 4 personas: 250 g de garbanzos, 300 g de morcillo de vaca, ¼ de gallina, 100 g de tocino blanco o entreverado, 100 g de morcilla de cebolla, 100 g de chorizo, 50 g de punta de jamón serrano, 4 huesos de tuétano de unos 5 cm, 1 Kg. de repollo, 4 patatas medianas, 2 zanahorias, 1 nabo, 1 diente de ajo, aceite de oliva para rehogar, 100 g de fideos cabellín para la sopa y sal. Para el relleno: 2 huevos, 75 g de pan rallado, 2 dientes de ajo, 2 cucharadas de perejil picado, aceite de oliva y sal.
 
 Preparación
 

@@ -11,3 +11,5 @@
 •Tocino fresco (optativo) - 1 trocito
 •Morcilla tipo asturiana - 1 unidad
 •Ajos - 3 unidades
+
+2kg de Judias
